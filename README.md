@@ -1,4 +1,5 @@
 已半弃坑，整理为短篇小说[少女躁狂妄想：200年的怨念.txt](https://github.com/SnowyYANG/TongLingHime/blob/master/%E5%B0%91%E5%A5%B3%E8%BA%81%E7%8B%82%E5%A6%84%E6%83%B3%EF%BC%9A200%E5%B9%B4%E7%9A%84%E6%80%A8%E5%BF%B5.txt)。
+
 ---
 
 AVG游戏，分级年龄段16+。  
