@@ -1,5 +1,5 @@
 # 少女躁狂妄想 
-One Girl's Manic Delusion / とある躁うつ少女の妄想
+One Girl's Manic Delusion / とある躁うつ少女の妄想  
 躁郁症时期的妄想记录，记录妄想并不代表它们是真实的，也不代表我相信玄学或持有某些观点。
 ## 序章 200年的怨念
 中文：[少女躁狂妄想：200年的怨念.txt](https://github.com/SnowyYANG/TongLingHime/blob/master/%E5%B0%91%E5%A5%B3%E8%BA%81%E7%8B%82%E5%A6%84%E6%83%B3%EF%BC%9A200%E5%B9%B4%E7%9A%84%E6%80%A8%E5%BF%B5.txt)  
