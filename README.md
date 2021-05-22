@@ -9,7 +9,7 @@ Delusion records during my manic phases. The delusions were recorded neither mea
 [0 - 200年を超える怨念.txt](https://github.com/SnowyYANG/TongLingHime/blob/master/0%20-%20200%E5%B9%B4%E3%82%92%E8%B6%85%E3%81%88%E3%82%8B%E6%80%A8%E5%BF%B5.txt) 日本語（Xinwei Liu・水谷剛 訳）
 ## 1. 搬不走的生灵
 中文 English 日本語
-## 2. 被称作蛇精的女子
+## 2. 被视为蛇精的女子
 中文 English
 ## 3. 森林之国的公主
 中文 English 日本語
