@@ -11,5 +11,5 @@ English (translated by Elizabeth Lange): [0 - The 200-Year Grudge.txt](https://g
 中文 English 日本語
 ## 2. 被称作蛇精的女子
 中文 English
-## 3. 森林里的公主
+## 3. 森林之国的公主
 中文 English 日本語
